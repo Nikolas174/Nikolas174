@@ -4,3 +4,5 @@ como por exemplo bateria, guitarra, baixo, teclado e mais alguns, eu pretendo
 fazer muitos testes esse ano no caso peneiras de futebol como no santos.
 um dos meus sonhos é me tornar jogador e poder "salvar" a seleção brasileira porque ultimamente
 ela não está bem, além do futebol eu penso em fazer alguns cursos como: barbeiro, música etc.
+se for pra escolher algum outro emprego eu esc olheria ser um empresario, sendo um bom investidor
+gostaria de abrir varias empresas pra poder dar mais cobdições de trabalho pras pessoas.
